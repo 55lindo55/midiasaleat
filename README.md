@@ -1,2 +1,3 @@
-# endak-tau
-yo endak tau ya jangan tanya saya
+# Mídias Aleatórias
+
+Todas os tipos de mídias (vídeo/imagem) estará armazenado aqui!
